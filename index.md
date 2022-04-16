@@ -6,6 +6,7 @@ Welcome
 *   [amemei的黄油](https://arcxingye.github.io/utu.html?url=https://5e.fit/amemei) (Password:114514)
 *   [rickroll二维码获取](https://arcxingye.github.io/rr/qrcode)
 *   [短链/页面/二维码生成](https://5e.fit/)
+*   张Y是伞兵
 
 不感兴趣的
 *   [adult](https://bonepa.com/9285d94ecb/7b15e6e39b/?placementName=default)
